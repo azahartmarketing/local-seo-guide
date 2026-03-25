@@ -6,4 +6,8 @@ Many companies create a Google Business Profile but forget that rankings also de
 
 This guide explains the key factors that influence local search visibility and how businesses can improve their presence in Google Maps.
 
+More info about local SEO services:
+https://azahart.com
+
+Local SEO service:
 https://azahart.com/soluciones-para-empresas/seo-local/
